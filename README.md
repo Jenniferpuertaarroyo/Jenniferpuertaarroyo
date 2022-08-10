@@ -4,7 +4,7 @@
 - 💞 Tecnico en Programacion de Software
 
 
-Hola mi nombre es Jennifer , soy aprendiz del SENA actualmente estoy haciendo un tegnologo en Analisis y Desarrollo de Software. Tengo muchos conocimientos sobre la tecnologia , soy una persona con ganas de superarse cada dia , soy una persona Amable , Respetuosa , Carismatica y  Honesta .
+Hola mi nombre es Jennifer , soy aprendiz del SENA actualmente estoy haciendo un tegnologo en Analisis y Desarrollo de Software. quiero tener  muchos conocimientos sobre la tecnologia , soy una persona con ganas de superarse cada dia , soy una persona Amable , Respetuosa , Carismatica y  Honesta .
 # FORMACION
 
 _ PRIMARIA C.E.R.N.A.D 2010-2015
